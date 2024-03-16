@@ -1,1 +1,1 @@
-love of my life
+LORD of all things
